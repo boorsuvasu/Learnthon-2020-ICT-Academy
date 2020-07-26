@@ -1,1 +1,1 @@
-## this repositary consists of all my workshops , online courses, internship certificates
+## This Repositary Consists Of All My Workshops , Online Courses, Internship Certificates
